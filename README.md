@@ -1,0 +1,3 @@
+# twrp_THOR5_MTK6739
+# twrp_THOR5_MTK6739
+# twrp_THOR5_MTK6739
